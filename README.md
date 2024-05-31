@@ -1,1 +1,1 @@
-# Hilllel-lesson-4
+# Hilllel-trainings
